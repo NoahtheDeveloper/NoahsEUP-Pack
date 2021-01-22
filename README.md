@@ -7,9 +7,9 @@
 > **Clothing List:**
 > - Kappa Black Hoodie (2 Varients)
 > - Brixton Hoodie
-> - Addidas Hoodie
+> - Addidas Hoodie (3 Varients)
 > - Diamond Hoodie
-> - PIT Viper Shirt
+> - PIT Viper Hoodie
 > - Bang Hoodie (2 Varients)
 > - louis vuitton Hoodie
 > 
