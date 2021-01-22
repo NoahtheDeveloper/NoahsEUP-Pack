@@ -6,7 +6,6 @@
 > 
 > **Clothing List:**
 > - Kappa Black Hoodie
-> - Kappa Yellow Hoodie
 > - Brixton Hoodie
 > - Addidas Hoodie
 > - Diamond Hoodie
