@@ -10,6 +10,10 @@
 > - Brixton Hoodie
 > - Addidas Hoodie
 > - Diamond Hoodie
+> - Oakley Glasses
+> - PIT Viper Shirt
+> - louis vuitton Shirt
+> - Bang longsleeve
 > 
 > 
 > 
