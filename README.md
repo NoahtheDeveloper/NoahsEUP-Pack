@@ -11,9 +11,9 @@
 > - Diamond Hoodie
 > - PIT Viper Hoodie
 > - Bang Hoodie (2 Varients)
-> - louis vuitton Hoodie
+> - Louis vuitton Hoodie
 > 
-> 
+> (11 TOTAL HOODIES)
 > 
 > > **Credits:** Noah Brahim
 > 
