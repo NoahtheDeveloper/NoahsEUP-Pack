@@ -23,6 +23,6 @@
 > 
 > > **Pictures:**
 > 
-> ![](https://cdn.discordapp.com/attachments/801599642638352416/802233508709662760/unknown.png)
-> ![](https://cdn.discordapp.com/attachments/801599642638352416/802233353888727071/unknown.png)
+> ![](https://cdn.discordapp.com/attachments/801599642638352416/802336003456761876/unknown.png)
+> ![](https://cdn.discordapp.com/attachments/801599642638352416/802335069976395806/unknown.png)
 > > 
